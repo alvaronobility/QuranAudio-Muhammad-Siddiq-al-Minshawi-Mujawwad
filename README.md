@@ -1,1 +1,1 @@
-# QuranAudio-Muhammad_Siddiq_al_Minshawi-Mujawwad
+# QuranAudio-Muhammad-Siddiq-al-Minshawi-Mujawwad
